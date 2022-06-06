@@ -1,1 +1,1 @@
-# kurovaia-rabota
+# kursovaia-rabota
